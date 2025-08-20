@@ -1,2 +1,2 @@
 # Activity1Repo
-nakakasunof naman po
+nakakasunod naman po
